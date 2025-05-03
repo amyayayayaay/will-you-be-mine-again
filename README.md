@@ -8,8 +8,7 @@ You mean so much to me, and I truly hope you’ll give us another chance.
 
 Click the link below to view the page I made with love:
 
-🔗 [Open the Proposal Website](https://yourusername.github.io/boyfriend-proposal/)
-
+🔗 https://amyayayayaay.github.io/will-you-be-mine-again/
 ---
 
 ## What’s Inside?
